@@ -1,1 +1,1 @@
-# prkritisatyagrah-1
+# prkritisatyagrah
